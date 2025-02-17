@@ -1,0 +1,1 @@
+# SanchaypattraApp-Ads.txt
